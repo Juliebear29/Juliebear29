@@ -1,12 +1,17 @@
 ## Hi there 👋
 My name is **Juliet O. Alozie**
-😄 Pronouns: ... She/Her
+
+_😄 Pronouns: She/Her_
 
 I am an undergraduate biology major with a business minor
 
 My career goal is to become a nurse and work part-time in Real estate
 
-🤔 I’m looking for help with internship opportunities
+🤔 I’m looking for internship opportunities
+
+📫 How to reach me: ... LinkedIn: [(https://www.linkedin.com/in/juliet-alozie-484216248/)]
+
+
 
 ![IMG_2582](https://github.com/user-attachments/assets/19434ba2-5a55-4520-8169-9d6f73dfa731)
 
