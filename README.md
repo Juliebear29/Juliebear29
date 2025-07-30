@@ -1,10 +1,14 @@
 ## Hi there 👋
-My name is Juliet O. Alozie
+My name is **Juliet O. Alozie**
+
 I am an undergraduate biology major with a business minor
+
+Career goal is to become a nurse and work part-time in Real estate
+
 ![IMG_2582](https://github.com/user-attachments/assets/19434ba2-5a55-4520-8169-9d6f73dfa731)
 
 
-I’m currently working on getting my bachelor's degree in BS
+
 <!--
 **Juliebear29/Juliebear29** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
