@@ -3,7 +3,9 @@ My name is **Juliet O. Alozie**
 
 I am an undergraduate biology major with a business minor
 
-Career goal is to become a nurse and work part-time in Real estate
+My career goal is to become a nurse and work part-time in Real estate
+
+🤔 I’m looking for help with internship opportunities
 
 ![IMG_2582](https://github.com/user-attachments/assets/19434ba2-5a55-4520-8169-9d6f73dfa731)
 
