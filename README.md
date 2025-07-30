@@ -1,7 +1,8 @@
 ## Hi there 👋
+
 My name is **Juliet O. Alozie**
 
-_😄 Pronouns: She/Her_
+ _😄 Pronouns: She/Her_
 
 I am an undergraduate biology major with a business minor
 
